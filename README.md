@@ -1,2 +1,2 @@
 # hamoz
-Mein Liber ich versuche was zu schafen
+Mein Lieber ich versuche was zu schafen
